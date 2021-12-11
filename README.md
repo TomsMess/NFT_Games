@@ -1,4 +1,4 @@
-# NFT_Games｜NFT游戏源码
+# NFT_Games｜NFT游戏源码-卡牌类
 
 
 # 卡牌案例1-【宇宙征途】-NFT卡牌盲盒+挖矿
@@ -38,4 +38,113 @@
 ![https://github.com/TomsMess/NFT_Games/blob/main/Game2/132031n2egmoum58jege5z.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game2/132031n2egmoum58jege5z.jpeg)
 
 ![https://github.com/TomsMess/NFT_Games/blob/main/Game2/132031y8hdadlral78lrl8.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game2/132031y8hdadlral78lrl8.jpeg)
+
+# **卡牌案例3--（欧美高端卡牌-艾泽拉斯)**【Golden-NFT】：
+
+复制网址到"币安BSC链"上打开自动登录：
+[https://dapp.gamefis.io?invitedCode=0x0a2e5a27829a49c5cf454054bd05564df2f4e171](https://dapp.gamefis.io/?invitedCode=0x0a2e5a27829a49c5cf454054bd05564df2f4e171)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game3/011559csm46qq64x4e65p3.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game3/011559csm46qq64x4e65p3.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game3/011559j3um3uyhcud3fut6.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game3/011559j3um3uyhcud3fut6.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game3/011559xpz5eoryt7o45yeu.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game3/011559xpz5eoryt7o45yeu.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game3/011559z33zlx9z0jjq9wvz.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game3/011559z33zlx9z0jjq9wvz.jpeg)
+
+# **卡牌案例4--（北欧高端卡牌-BABY-CTY)**：
+
+复制网址到浏览器，打开币安链BSC钱包自动登录：
+https://thecryptoyou.io/game/daily-mining
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game4/162122egy5x7gd8xagajdx.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game4/162122egy5x7gd8xagajdx.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game4/162126equsfy4y1qqekrow.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game4/162126equsfy4y1qqekrow.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game4/162127bontqa7wi3accvtu.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game4/162127bontqa7wi3accvtu.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game4/162140ksvx7fsdt2nov76n.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game4/162140ksvx7fsdt2nov76n.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game4/162143yoaaqz4f5xp8bfga.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game4/162143yoaaqz4f5xp8bfga.jpeg)
+
+# **卡牌案例5--（欧洲高端卡牌-诸神之战)**
+
+复制网址到"币安BSC链"上打开自动登录：
+[https://GodsUnchained.com?utm_source=tokenpocket](https://godsunchained.com/?utm_source=tokenpocket)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game5/163125vmhzhgnmliiq0qmo.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game5/163125vmhzhgnmliiq0qmo.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game5/163126kygibymig2lmd9ok.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game5/163126kygibymig2lmd9ok.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game5/163126lt48s78kze8ksreb.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game5/163126lt48s78kze8ksreb.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game5/163128yid0ochct9toyiyc.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game5/163128yid0ochct9toyiyc.jpeg)
+
+# **卡牌案例6--（宇宙飞船UUO)**：
+
+复制网址到浏览器，打开币安链BSC钱包自动登录：
+https://play.cryptomines.app/
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game6/160100xxqqplia3s4a42o3.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game6/160100xxqqplia3s4a42o3.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game6/160131de11roewjz22zmrr.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game6/160131de11roewjz22zmrr.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game6/160132oklpp9zp8ybyulmc.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game6/160132oklpp9zp8ybyulmc.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game6/160325f8mdm3acb4w40m13.png](https://github.com/TomsMess/NFT_Games/blob/main/Game6/160325f8mdm3acb4w40m13.png)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game6/160327lkndixmk4271u7zf.png](https://github.com/TomsMess/NFT_Games/blob/main/Game6/160327lkndixmk4271u7zf.png)
+
+# **卡牌案例7--（欧美高端卡牌-Hero Cat 英雄猫)**
+
+复制网址到"币安BSC链"上打开自动登录：
+https://mobile.herocat.io/login
+账号：2851703955@qq.com 密码：123456aa
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game7/022523icbb6oizricrldbr.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game7/022523icbb6oizricrldbr.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game7/022523xz2kq12an0zq052k.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game7/022523xz2kq12an0zq052k.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game7/022727jsupnup8pnsmsn21.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game7/022727jsupnup8pnsmsn21.jpeg)
+
+# **卡牌案例8--（日韩高端卡牌- Hello kitty)**
+
+复制网址到"币安BSC链"上打开自动登录：
+https://www.hkt-nft.com/
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game8/022753gl5dljlcdeqf10ce.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game8/022753gl5dljlcdeqf10ce.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game8/022753h3y78ju8lx88r7wr.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game8/022753h3y78ju8lx88r7wr.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game8/022754vdgwthpzwhhf7hiz.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game8/022754vdgwthpzwhhf7hiz.jpeg)
+
+# **卡牌案例9-（古侠高端卡牌对战）**【NFT HERO】：
+
+复制网址到"币安BSC链"上打开自动登录：
+https://www.nft-hero.com/#/index
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game9/011705cyd5t35h3dr98hpp.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game9/011705cyd5t35h3dr98hpp.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game9/011705jjg3gvzs96jc9b83.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game9/011705jjg3gvzs96jc9b83.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game9/011705legzmyz6m2jmm22e.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game9/011705legzmyz6m2jmm22e.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game9/011705msdd4bpohdesg4g4.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game9/011705msdd4bpohdesg4g4.jpeg)
+
+# **卡牌案例10-**【类似Opensea】-会员上传图片上链NFT铸币 +到市场交易拍卖
+
+(可以做成DAPP模式钱包直接入金，也可以做成DAPP模式微信/支付宝入金)
+**玩法说明：**用户上传艺术图片，然后付平台一定费用，平台就可以将这张艺术图片上链铸币NFT,得到独一无二的token，
+用户再将该NFT图片加价挂卖平台的交易商店进行拍卖。其他用户看到这张艺术品，觉得非常棒，就会竞拍买下，平台收取一定佣金。
+
+以下演示是H5/APP案例，实际交付时可做成Dapp，TP钱包直接登录，链上交易和铸币的。
+**演示网址：**http://test.zhe6666.com/h5/#/
+**账号密码：**13632978801 123456aa
+(若重注册邀请码 SO7VBR）
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game10/200345idkbtpbuhwdtd046.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game10/200345idkbtpbuhwdtd046.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game10/200345j77b2wrbwgdzbcfl.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game10/200345j77b2wrbwgdzbcfl.jpeg)
+
+![https://github.com/TomsMess/NFT_Games/blob/main/Game10/200345ot2y4uv2lx16y7yc.jpeg](https://github.com/TomsMess/NFT_Games/blob/main/Game10/200345ot2y4uv2lx16y7yc.jpeg)
 
